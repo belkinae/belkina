@@ -1,4 +1,1 @@
 #real
-#MAGA
-#donaldф
-
